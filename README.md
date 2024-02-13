@@ -1,4 +1,4 @@
-www.kuiayin001.com   kuiayin001.com
+www.kuaiyin001.com    kuaiyin001.com
 
 www.kuaiyin002.com   kuaiyin002.com
 
