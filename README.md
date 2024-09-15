@@ -8,9 +8,9 @@ www.kcloud02.com
 www.kuaiyin02.com
 
 备用：
-www.kcloud01.com
+www.kcloud01.com (已被拦截)
 
-www.kuaiyin01.com
+www.kuaiyin01.com (已被拦截)
 
 www.kuaiyin001.com (已被拦截)
 
